@@ -1,1 +1,1 @@
-Skydrive com os programas: http://1drv.ms/1ltlltg
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_YjM0MTQ1NjgtZTMwOC00OGQ1LTg4OTItODFjOWUyMWJjMWVm%40thread.v2/0?context=%7b%22Tid%22%3a%2255a2bc67-aec1-4ad2-9a9c-5b2457b91dcd%22%2c%22Oid%22%3a%2239530293-25fb-4017-8243-545db635df7f%22%7d
